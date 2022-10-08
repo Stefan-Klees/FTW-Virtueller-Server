@@ -1,1 +1,1 @@
-In Vorbereitung
+In Vorbereitung, demnächst Verfügbar.
