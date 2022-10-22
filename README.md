@@ -1,4 +1,4 @@
-In Vorbereitung, Verfügbar ab 22.10.2020
+Virtueller Server zum Betrieb von Fly the World
 
 Download und Informationen im Wiki
 
